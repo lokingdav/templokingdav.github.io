@@ -1,6 +1,6 @@
 ## Hi there 👋, I'm David L. Adei
 
- I am working on this site, which will be available on Sept. 18. 
+ I am working on this site, which will be available on soon. 
 
  Wait till I finish this site, and you will love me 😄. 
 
